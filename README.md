@@ -14,7 +14,7 @@ A imagem de capa foi criada pelo LeonardoAI.
 A revisão do conteúdo e edição foi feita no Word.
 
 ## 🚀 Resultados
-Acesse o ebook clicando no link:
+Acesse o ebook clicando no link: Ebook A Idade da Terra na Cosmovisão Cristã.pdf
 
 ## 💭 Reflexão (Opcional)
 O desenvolvimento do conteúdo me surpreendeu, apresentando os dados de  forma imparcial, lógica e coesa. 
